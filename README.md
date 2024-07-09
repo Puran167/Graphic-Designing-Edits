@@ -16,3 +16,5 @@
 ![project-3](https://github.com/Puran167/Graphic-Designing-Edits/assets/144983194/cfdf7afa-9ccb-4dc0-8579-75da04f2c3ea)
 ![6](https://github.com/Puran167/Graphic-Designing-Edits/assets/144983194/9bd78db3-7f60-4c7c-9dce-b1d2fc2db384)
 ![Editable Research Map Template](https://github.com/Puran167/Graphic-Designing-Edits/assets/144983194/6702339a-697b-46dd-9459-51d946fe1fbe)
+![Screenshot_20240709-233429~2.png](https://github.com/Puran167/Graphic-Designing-Edits/assets/144983194/5189155b-f76a-459d-8e2f-956843e68296)
+
